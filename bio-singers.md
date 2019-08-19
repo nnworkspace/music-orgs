@@ -26,7 +26,8 @@ sie Schauspielerin an der Stuttgarter Staatsoper und den Stuttgarter Philharmoni
 
 抒情女高音。就读于美因茨大学音乐学院音乐教育专业与美因茨彼得·科内留斯音乐学院声乐表演专业。
 
-Shiyuan Peng，lyrischer Sopran, studiert Elementare Musikpädagogik mit Hauptfach Gesang an der Hochschule für Musik Mainz und gleichzeitig das künstlerische Aufbaustudium Gesang am Peter Cornelius Konservatorium der Stadt Mainz.
+Shiyuan Peng, lyrischer Sopran, studiert Elementare Musikpädagogik mit Hauptfach Gesang an der Hochschule für Musik Mainz und gleichzeitig das künstlerische Aufbaustudium Gesang am Peter Cornelius Konservatorium der Stadt Mainz.
+
  
 ### 5. 赵亮亮
 
