@@ -24,14 +24,14 @@ sie Schauspielerin an der Stuttgarter Staatsoper und den Stuttgarter Philharmoni
 
 ### 4. 彭诗源
 
-抒情女高音。就读于美因茨大学音乐学院音乐教育专业与美因茨彼得·科内留斯音乐学院声乐表演专业。
+彭诗源，抒情女高音。就读于美因茨大学音乐学院音乐教育专业与美因茨彼得·科内留斯音乐学院声乐表演专业。
 
 Shiyuan Peng, lyrischer Sopran, studiert Elementare Musikpädagogik mit Hauptfach Gesang an der Hochschule für Musik Mainz und gleichzeitig das künstlerische Aufbaustudium Gesang am Peter Cornelius Konservatorium der Stadt Mainz.
 
  
 ### 5. 赵亮亮
 
-男低音赵亮亮，出生于中国河南，2016年毕业于哈尔滨师范大学。
+赵亮亮，男低音，出生于中国河南，2016年毕业于哈尔滨师范大学。
 在校期间曾参加中俄博览会开幕式音乐等演出。
 2018年成为卡尔斯鲁厄国立音乐学院声乐研究生，师从女高音教授 Maria Venuti。与此同时，还参加了 Ann Murray DBE 等大师的大师课。
 歌剧舞台上，他曾饰演罗西尼的歌剧《灰姑娘》中阿里多罗，普契尼的歌剧《贾尼·斯基基》中的西蒙。
@@ -44,19 +44,17 @@ Er war bereits als Alidoro in „La Cenerentola“ von Gioachino Rossini, als Si
 
 ### 6. 张芮斌
 
-工学硕士。业余从事声乐学习、表演。从小参加合唱，并随团获得中小学生合唱比赛全国第二名。“水立方杯” 海外华人中文歌曲大赛芬兰赛区冠军。寻求古典与流行唱法的结合，以增强表现力。
+张芮斌，工学硕士。业余从事声乐学习、表演。从小参加合唱，并随团获得中小学生合唱比赛全国第二名。“水立方杯” 海外华人中文歌曲大赛芬兰赛区冠军。寻求古典与流行唱法的结合，以增强表现力。
 
 
 Robin Zhang, Master of Engineering, ist Amateur in Gesangsunterricht und Performance. Er sang im Chor seit seiner Kindheit, gewannt den zweiter Platz im Chinesische Chorwettbewerb. Gewann den erster Platz im „Wasserwürfel“ Chinesischer Gesanswettbewerb in Finnland. Er versucht eine Kombinaiton aus klassisch und populärem Gesang, um bessere Ausdruckskraft zu erzielen.
 
  
-### 7. 夏娃文格丝（Eva Wenniges） 
+### 7. 夏娃·文格丝（Eva Wenniges） 
 
-曾在各国音乐会中作为独唱者。她曾在中国最大的音乐厅之一“上海东方艺术中心”表演并作为独唱者在德国国家级电视台亮相，有近百万的观众收看了这个节目。2017年3月，她的舒伯特的独奏会“A great passion”首次在上海音乐厅举行。2017年6月和9月她在中国巡回演出了一部关于克拉拉舒曼的钢琴小歌剧，多达20多次。尤其在中国，她的音乐会得到了热烈反响，不仅有德语曲目，还有中文曲目。她的钢琴搭档是Wolfgang Wagenhäuser教授, 江滢, 李玮捷和Peter Nelson教授。在德国她与著名的指挥家如Jürgen Budday教授，Rainer J. Homburg 和 Jörg Hannes Hahn等合作。在她的整个职业生涯中，她表演了很多伟大音乐作品的独唱部分，如莫扎特的安魂曲，巴赫的圣诞清唱剧以及贝多芬的第九交响曲。《斯图加特新闻报》写道：“夏娃文格丝以她美妙而暗黑的女中音，完美展现了少年维特的夏洛特微妙心理，太棒了”。 
-德国《内卡奥登瓦尔德报》对她的演出给予了极高的赞赏：“她对乐句的诠释，一点儿也不亚于罗森博格和格鲁贝鲁娃”（后两者为世界最著名女中音歌唱家）。  夏娃文格丝女士在学术及教学方面都取得了不小的成就，也曾获得如Konrad Adenauer Stiftung 和 L-Bank等不同组织提供的奖学金。2011年5月至2015年1月，她在德国特罗辛根国立音乐学院担任声乐教师。她从2015年8月至2017年9月担任同济大学副教授。自2018年1月起，她负责协调德国特罗辛根大学和同济大学音乐系的合作事务.
+夏娃·文格丝，次女高音，毕业于德国卡尔斯鲁厄音乐学院以及以色列特拉维夫音乐学院。她活跃在各国音乐会的独唱舞台。尤其在中国，她的音乐会不仅有德语曲目，还有中文曲目，观众反响热烈。她的合作伙伴包括 Wolfgang Wagenhäuser 教授等著名钢琴家以及 Jürgen Budday 教授等著名指挥家。她的演出曲目包括莫扎特的安魂曲，巴赫的圣诞清唱剧以及贝多芬的第九交响曲等等。德语报章对她的演出有极高评价。她在学术及教学方面也富有造诣，曾获得 Konrad Adenauer Stiftung 等不同组织提供的奖学金。她曾在德国特罗辛根国立音乐学院担任声乐教师，也曾担任同济大学副教授。自 2018 年 1 月起，她负责协调德国特罗辛根大学和同济大学音乐系的合作事务。
 
-Eva Wenniges absolvierte ihr Studium in Karlsruhe bei Prof. Marga Schiml und an der Musikhochschule in Tel Aviv bei Prof. Tamar Rachum. Schon während ihres Studiums wurde sie mit verschiedenen Stipendien gefördert, zuletzt mit einem hochdotierten Stipendium des Landes Baden Württemberg. Frau Wenniges konzertierte schon im In- und Ausland. International hörte man sie u.a. beim viel beachteten Wagner-Symposium in Tel Aviv/ Israel (Rolle: Blumenmaedchen im Parsifal), sie sang ein Konzert mit zeitgenössischer Musik im Erasmus Haus in Jakarta und gab einen Liederabend an der weltberühmten Bundpromenade in Shanghai. Ausserdem sang sie im Januar 2017 ein Konzert im Shanghai Oriental Arts Centre, einem der größten Konzertsäle Chinas, und hat im März desselben Jahres in der ausverkauften Shanghai Concert Hall mit einem Schubert Recital ihr Debut gegeben. Des Weiteren hatte sie die Ehre, im Mai 2019 bei den offiziellen Feierlichkeiten des Landes Baden Württemberg zu 70 Jahre Grundgesetzes zu singen. Im Juli diesen Jahres wurde mit großem Erfolg die Tournee mit einer Kammeroper über Clara Schumann fortgesetzt, die sie im Juni und September 2017 schon durch 20 Städte in ganz China geführt hat. Insbesondere in China feiert sie Erfolge mit ihren Liederabenden, die auch chinesisches Repertoire mit einschließen. 
-Ihre pianistischen Partner dabei sind Prof. Wolfgang Wagenhäuser, Yin Chiang, Liang Zhang, Li Weijie und Prof. Peter Nelson. In Deutschland sang sie u.a. mit Dirigenten wie Prof. Silvius von Kessel (Erfurter Mariendom), Prof. Budday (Klosterkonzerte Maulbronn), mit den Hymnus Chorknaben unter der Leitung von Johannes Homburger und unter der Leitung des Stuttgarter Dirigenten und Domkapellmeisters Martin Dücker. Im ARD Gottesdienst am Karfreitag 2014 trat Frau Wenniges unter der musikalischen Leitung von KMD Jörg Hannes Hahn als Solistin auf (geschätzte Zuschauerzahl 800 000). Von Mai 2011 bis April 2015 hatte Frau Wenniges einen Lehrauftrag für Gesang an der Musikhochschule Trossingen inne. Im August 2015 folgte sie einem Ruf als Gastprofessorin an die Tongji Universität Shanghai, den sie bis September 2017 inne hatte. Von Januar 2018 bis Juli 2018 hatte sie die Projektkoordination zwischen der Musikhochschule Trossingen und der Musikfakultät der Tongji Universität Shanghai übernommen.  
+Eva Wenniges, Mezzosopran, absolvierte ihr Studium in Karlsruhe bei Prof. Marga Schiml und an der Musikhochschule in Tel Aviv bei Prof. Tamar Rachum. Sie ist aktiv auf der Solobühne von Konzerten in vielen Ländern. Besonders in China haben ihre Konzerte nicht nur deutsche, sondern auch chinesische Lieder, und das Publikum reagierte begeistert. Zu ihren Partnern zählen berühmte Pianisten wie Professor Wolfgang Wagenhäuser und berühmte Dirigenten wie Professor Jürgen Budday. Zu ihren Repertoire zählen Mozarts Requiem, Bachs Weihnachtsoratorium und Beethovens Neunte Symphonie. Die deutsche Zeitung lobte ihre Performance mit Hochachtung. Sie hat auch voll von Leistungen in der akademischen Lehre und gewann ein Stipendium Konrad-Adenauer-Stiftung und andere verschiedene Organisationen. Sie arbeitete als Gesangslehrerin an der Musikhochschule Trossingen und als assoziierte Professorin an der Tongji-Universität. Seit Januar 2018 koordiniert sie die Zusammenarbeit zwischen der Musikhochschule Trossingen und der Musikabteilung der Tongji-Universität.
 
  
 ### 8. 郭蔚然
