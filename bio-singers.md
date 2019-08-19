@@ -58,15 +58,15 @@ Eva Wenniges, Mezzosopran, absolvierte ihr Studium in Karlsruhe bei Prof. Marga 
 
  
 ### 8. 郭蔚然
-  郭蔚然，生于中国沈阳。六岁开始学习钢琴，九岁在市钢琴比赛中获奖。12岁考入沈阳音乐学院附中。2000年赴德国继续学习，同年考入斯图加特音乐学院(Staatliche Hochschule für Musik und darstellende Kunst)。2005年获得音乐教师（Musiklehrer)和钢琴演奏(künstlerische Ausbildung)双硕士。2005至2008年继续在斯图加特和苏黎世音乐与戏剧大学深造（Zürcher Hochschule der Künste)学习艺术歌曲演奏和钢琴室内乐。曾获斯图加特市政府和瑞士基金会奖学金。
-  作为自由音乐家在教学的同时经常举办，参与各种音乐会及演出。形式丰富，包括：钢琴独奏，器乐室内乐重奏，声乐三重奏，钢琴伴奏以及电声乐队。
-   自2015年担任斯图加特华韵合唱团的钢琴艺术指导。2019年和朋友组建德国华人爱乐协会。
+
+郭蔚然，钢琴家，生于中国沈阳。六岁开始学习钢琴，九岁在市钢琴比赛中获奖。12岁考入沈阳音乐学院附中。2000年考入斯图加特音乐学院(Staatliche Hochschule für Musik und darstellende Kunst)。2005年获得音乐教师（Musiklehrer) 和钢琴演奏 (künstlerische Ausbildung) 双硕士。2005 至 2008 年继续在斯图加特和苏黎世音乐与戏剧大学深造（Zürcher Hochschule der Künste)，学习艺术歌曲演奏和钢琴室内乐。曾获斯图加特市政府和瑞士基金会奖学金。作为自由音乐家，她在教学的同时经常发起以及参与各种音乐会及演出。她的形式丰富，包括：钢琴独奏，器乐室内乐重奏，声乐三重奏，钢琴伴奏以及电声乐队。自 2015 年起担任斯图加特华韵合唱团的钢琴艺术指导。2019年和朋友组建德国华人爱乐协会。
 
 
-Weiran Guo, geboren in Shenyang, China.
-Ihre erste Klavierstunde erhielt sie im Alter von 6 Jahren und gewann ihren ersten Preis mit Neun. 1992-1998 besuchte sie das Musikkonservatorium in Shangyang. 2000-2005 studierte sie an der Musikhochschule Stuttgart im Fach Klavier in den Studiengängen Musiklehrer und künstlerische Ausbildung bei Prof. Friedemann Rieger mit der Abschlußnote 1,0. 2005-2008 studierte sie Liedgestaltung als Zusatzstudium in der Klasse von Prof. Cornelis Witthoefft. 2008 bekam sie zusätzlich das Diplom in Klavierkammermusik der Zürcher Hochschule der Künste im Studiengang Interpretation und Performance. Während ihres Studiums erhielt sie aufgrund ihrer herausragenden Leistungen Stipendien von der Stadt Stuttgart und Zürich.
+Weiran Guo, Pianistin, geboren in Shenyang, China. 
+Ihre erste Klavierstunde erhielt sie im Alter von 6 Jahren und gewann ihren ersten Preis mit Neun. 1992-1998 besuchte sie das Musikkonservatorium in Shangyang. 2000-2005 studierte sie an der Musikhochschule Stuttgart im Fach Klavier in den Studiengängen Musiklehrer und künstlerische Ausbildung bei Prof. Friedemann Rieger mit der Abschlußnote 1,0. 2005-2008 studierte sie Liedgestaltung als Zusatzstudium in der Klasse von Prof. Cornelis Witthoefft. 2008 bekam sie zusätzlich das Diplom in Klavierkammermusik der Züricher Hochschule der Künste im Studiengang Interpretation und Performance. Während ihres Studiums erhielt sie aufgrund ihrer herausragenden Leistungen Stipendien von der Stadt Stuttgart und Zürich.
 Neben der pädagogischen Tätigkeit als Klavierlehrerin, gehören sowohl Klaviersolo, Klavierkammermusik, Klavier mit Vocal-Ensemble, als auch Chorleitung und -begleitung zu ihrer künstlerischen Laufbahn. Seit 2015 arbeitet sie als Korrepetitorin mit dem Chor SinoPhonic zusammen. Im Mai 2019 gründete sie den Verein SinoPhiloMusica.
  
+
 ### 9. 张晓峰
 
 鋼琴：德国特洛辛根音乐大学 (Staatliche Hochschule für Musik Trossingen)取得最高文凭，师从匈牙利知名钢琴家Prof. Ákos Hernádi。旅德之前师从维也纳钢琴家Dr. Albert Mühlböck, Prof. Konstantin Ganev, Prof. Julia Ganeva (俄国涅高兹教授Prof.Heinrich Neuhaus门下)，程彰教授 (罗马大奖金奖，巴黎高等钢琴教授松贡Prof. Pierre Sancan门下)
