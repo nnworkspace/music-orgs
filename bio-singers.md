@@ -1,16 +1,15 @@
 ### 1. 俞馨蕾
 
-抒情花腔女高音。在国内求学期间获得音乐教育学士学位以及艺术学硕士学位。随后任职于四川绵阳艺术学院，担任声乐系助教。2014年赴德深造。求学期间多次参加大师班学习，演出以及专业比赛。在校期间曾出演莫扎特(W.A.Mozart)歌剧《魔笛》(Die Zauberflöte)中的“夜后”(Königin der Nacht)。2018年以满分成绩毕业，同时就职于Staatstheater Mainz，参演威尔第 (J. Verdi）歌剧《唐.卡洛》（“Don Carlo“）中的“Tebaldo”以及“Una voce dal cielo”。 2018/19演出季任职于Staatstheater Darmstadt。同年6月获理查德.瓦格纳(Richard. Wagner)奖学金，并作为独唱演员参加在Bayreuth举办的“Internationales Stipendiatenkonzert 2018”。 2019/20演出季就职于Hessisches Staatstheater Wiesbaden担任独唱演员。2015年8月起担任斯图加特华韵合唱团指挥。
+俞馨蕾, 抒情花腔女高音。在国内求学期间获得音乐教育学士学位以及艺术学硕士学位。随后任职于四川绵阳艺术学院，担任声乐系助教。2014年赴德深造。求学期间多次参加大师班学习，演出以及专业比赛。在校期间曾出演莫扎特(W.A.Mozart)歌剧《魔笛》(Die Zauberflöte)中的“夜后”(Königin der Nacht)。2018 年以满分成绩毕业，同时就职于Staatstheater Mainz，参演威尔第 (J. Verdi）歌剧《唐.卡洛》（“Don Carlo“）中的“Tebaldo”以及“Una voce dal cielo”。 2018/19 演出季任职于Staatstheater Darmstadt。同年6月获理查德.瓦格纳(Richard. Wagner)奖学金，并作为独唱演员参加在 Bayreuth 举办的 “Internationales Stipendiatenkonzert 2018”。 2019/20 演出季就职于Hessisches Staatstheater Wiesbaden担任独唱演员。2015年8月起担任斯图加特华韵合唱团指挥。
 
 Die chinesische lyrische Koloratursopranistin Xinlei Yu erlangte in China ihre Abschlüsse in Gesangspädagogik und Kunstwissenschaften. Anschließend arbeitete sie als Gesangsdozentin. 2014 kam sie nach Deutschland um Bühnengesang zu studieren. Bei zahlreichen Auftritten sang sie u.a. die Partie der Königin der Nacht, Adele, Cleopatra und Liesgen. Im Staatstheater Mainz sang sie die Rolle des „Tebaldo“ und „una voce dal ciel“ aus „Don Carlo“ von J. Verdi. In 2018 hat sie ihr künstlerisches Studium mit Auszeichnung abgeschlossen. In der Spielzeit 2018/19 wirkte sie im Staatstheater Darmstadt bei der Produktion „Saint François d´Assise“ von Olivier Messiaen mit. Im August 2018 hat sie als Stipendiatin im „Internationalen Stipendiatenkonzert 2018 der Richard-Wagner-Stipendienstiftung“ in Bayreuth gesungen. In der Spielzeit 2019/20 singt sie am Hessischen Staatstheater Wiesbaden die Rolle der Königin der Nacht aus „Die Zauberflöte“ von W.A.Mozart. Seit August 2015 ist sie Chorleiterin vom Chor SinoPhonia.
  
 ### 2. 叶遐
 
- 叶遐，德中社区音乐剧场创始人及总监，上海音乐学院毕业，原福建省歌舞剧院独唱演员，曾多次获省内外歌手大赛金奖，原创歌曲《蓝蓝的江，绿绿的水》、《红》获得中央电视台星光新曲栏目优秀奖，2018-2019，在法兰克福Gallustheater成功举办千里之外个人中国经典艺术歌曲音乐会及情景音乐会《西东相遇》
+叶遐，德中社区音乐剧场创始人及总监。上海音乐学院毕业，原福建省歌舞剧院独唱演员，曾多次获省内外歌手大赛金奖。原创歌曲《蓝蓝的江，绿绿的水》、《红》获得中央电视台星光新曲栏目优秀奖。 2018-2019，在法兰克福 Gallustheater 成功举办《千里之外》个人中国经典艺术歌曲音乐会及情景音乐会《西东相遇》。
 
-Xia Ye , hat sie nach der musikalischen Ausbildung auf dem Hangzhou College und Fujian Normal College Am Shanghai Conservatory of Music mit chinesische Volksmusik studiert . Ihre berufliche Karriere begann sie als Solo Sängerin in der Gesangs-und Tanz Gruppe der Provinz  Fujian , erhielt fünf Gold Medaillen und einen Silber Award des Musik-und Tanz - Festivals der Provinz Fujian . Während ihres Aufenthalts in den Vereinigten Staaten war sie als populärste chinesische Sängerin aktiv in der chinesischen Überseea Gemeinschaft tätig und begeisterte die Zuhörer beim Asiatischen Kulturfestival und bei Kirchen Aufführungen. Seit 2015 lebt Ye Xia in Deutschland und engagiert sich aktiv in der Chinesischen Übersee Gemeinschaft ,in Chinesischen Schulen und hat an lokalen 
-Aufführungen teilgenommen. Als 
-Ziel hat sie hierbei die Chinesische Kultur zu pflegen und dem westlichen Publikum die Chinesische Volksmusik näher zu bringen .
+Ye Wei, Gründerin und Direktorin des deutsch-chinesischen Community Music Theatre. Die ehemalige Solodarstellerin des Fujian Song and Dance Theatre, Absolvent des Shanghai Conservatory of Music, hat mehrmals die Goldmedaillen bei Sängerwettbewerbe in China gewonnen. Ihre Originalsongs "Blue River, Green Water" und "Red" wurden mit dem Excellence Award der CCTV Starlight New Music ausgezeichnet. Im 2018-2019, sie hielt erfolgreich das "A Thousand Miles Outside" -Songkonzert für klassische chinesische Kunstlieder und das Szenenkonzert "Western Meet" im Gallustheater in Frankfurt.
+
  
 ### 3. 周泉
 
@@ -60,6 +59,8 @@ Ihre pianistischen Partner dabei sind Prof. Wolfgang Wagenhäuser, Yin Chiang, L
   郭蔚然，生于中国沈阳。六岁开始学习钢琴，九岁在市钢琴比赛中获奖。12岁考入沈阳音乐学院附中。2000年赴德国继续学习，同年考入斯图加特音乐学院(Staatliche Hochschule für Musik und darstellende Kunst)。2005年获得音乐教师（Musiklehrer)和钢琴演奏(künstlerische Ausbildung)双硕士。2005至2008年继续在斯图加特和苏黎世音乐与戏剧大学深造（Zürcher Hochschule der Künste)学习艺术歌曲演奏和钢琴室内乐。曾获斯图加特市政府和瑞士基金会奖学金。
   作为自由音乐家在教学的同时经常举办，参与各种音乐会及演出。形式丰富，包括：钢琴独奏，器乐室内乐重奏，声乐三重奏，钢琴伴奏以及电声乐队。
    自2015年担任斯图加特华韵合唱团的钢琴艺术指导。2019年和朋友组建德国华人爱乐协会。
+
+
 Weiran Guo, geboren in Shenyang, China.
 Ihre erste Klavierstunde erhielt sie im Alter von 6 Jahren und gewann ihren ersten Preis mit Neun. 1992-1998 besuchte sie das Musikkonservatorium in Shangyang. 2000-2005 studierte sie an der Musikhochschule Stuttgart im Fach Klavier in den Studiengängen Musiklehrer und künstlerische Ausbildung bei Prof. Friedemann Rieger mit der Abschlußnote 1,0. 2005-2008 studierte sie Liedgestaltung als Zusatzstudium in der Klasse von Prof. Cornelis Witthoefft. 2008 bekam sie zusätzlich das Diplom in Klavierkammermusik der Zürcher Hochschule der Künste im Studiengang Interpretation und Performance. Während ihres Studiums erhielt sie aufgrund ihrer herausragenden Leistungen Stipendien von der Stadt Stuttgart und Zürich.
 Neben der pädagogischen Tätigkeit als Klavierlehrerin, gehören sowohl Klaviersolo, Klavierkammermusik, Klavier mit Vocal-Ensemble, als auch Chorleitung und -begleitung zu ihrer künstlerischen Laufbahn. Seit 2015 arbeitet sie als Korrepetitorin mit dem Chor SinoPhonic zusammen. Im Mai 2019 gründete sie den Verein SinoPhiloMusica.
