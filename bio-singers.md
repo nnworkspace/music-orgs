@@ -59,7 +59,7 @@ Eva Wenniges, Mezzosopran, absolvierte ihr Studium in Karlsruhe bei Prof. Marga 
  
 ### 8. 郭蔚然
 
-郭蔚然，钢琴家，生于中国沈阳。六岁开始学习钢琴，九岁在市钢琴比赛中获奖。12岁考入沈阳音乐学院附中。2000年考入斯图加特音乐学院(Staatliche Hochschule für Musik und darstellende Kunst)。2005年获得音乐教师（Musiklehrer) 和钢琴演奏 (künstlerische Ausbildung) 双硕士。2005 至 2008 年继续在斯图加特和苏黎世音乐与戏剧大学深造（Zürcher Hochschule der Künste)，学习艺术歌曲演奏和钢琴室内乐。曾获斯图加特市政府和瑞士基金会奖学金。作为自由音乐家，她在教学的同时经常发起以及参与各种音乐会及演出。她的形式丰富，包括：钢琴独奏，器乐室内乐重奏，声乐三重奏，钢琴伴奏以及电声乐队。自 2015 年起担任斯图加特华韵合唱团的钢琴艺术指导。2019年和朋友组建德国华人爱乐协会。
+郭蔚然，钢琴家，生于中国沈阳。六岁开始学习钢琴，九岁在市钢琴比赛中获奖。12岁考入沈阳音乐学院附中。2000年考入斯图加特音乐学院 (Staatliche Hochschule für Musik und darstellende Kunst)。2005年获得音乐教师（Musiklehrer) 和钢琴演奏 (künstlerische Ausbildung) 双硕士。2005 至 2008 年继续在斯图加特和苏黎世音乐与戏剧大学深造（Zürcher Hochschule der Künste)，学习艺术歌曲演奏和钢琴室内乐。曾获斯图加特市政府和瑞士基金会奖学金。作为自由音乐家，她在教学的同时经常发起以及参与各种音乐会及演出。她的形式丰富，包括：钢琴独奏，器乐室内乐重奏，声乐三重奏，钢琴伴奏以及电声乐队。自 2015 年起担任斯图加特华韵合唱团的钢琴艺术指导。2019年和朋友组建德国华人爱乐协会。
 
 
 Weiran Guo, Pianistin, geboren in Shenyang, China. 
@@ -69,14 +69,10 @@ Neben der pädagogischen Tätigkeit als Klavierlehrerin, gehören sowohl Klavier
 
 ### 9. 张晓峰
 
-鋼琴：德国特洛辛根音乐大学 (Staatliche Hochschule für Musik Trossingen)取得最高文凭，师从匈牙利知名钢琴家Prof. Ákos Hernádi。旅德之前师从维也纳钢琴家Dr. Albert Mühlböck, Prof. Konstantin Ganev, Prof. Julia Ganeva (俄国涅高兹教授Prof.Heinrich Neuhaus门下)，程彰教授 (罗马大奖金奖，巴黎高等钢琴教授松贡Prof. Pierre Sancan门下)
-作曲：德国国立斯图加特音乐暨表演艺术大学 (Staatliche Hochschule für Musik und Darstellende Kunst) 取得最高文凭。巴黎高等音乐学院 (Conservatoire national supérieur de musique et de danse Paris)，师从Prof. Marco Stroppa, Oliver Schneller以及Prof. Stefano Gervasoni
-出生于中国台湾，现旅居德国。台湾新生代新锐作曲家、钢琴家。少数拥有德国作曲与钢琴两项专业最高文凭的音乐家。 
-2019年，被台湾艺术基金会评选为：作曲专题资料库的作曲家。
-于德国南部三大城发表新作品七重奏，并被德国西南德报 (Südwest Presse) 评论为:作品成功的将传统与前卫的结合。
-于台湾发表新作三重奏并举办个人钢琴独奏会。
-2018年，于斯图加特及慕尼黑爱乐厅举办个人作品发表会。
-接受巴伐利亚广播电台访问，并发表作品。
+张晓峰，台湾新生代新锐作曲家、钢琴家，现旅居德国。他在德国特洛辛根音乐大学 (Staatliche Hochschule für Musik Trossingen) 取得最高文凭，师从匈牙利知名钢琴家 Prof. Ákos Hernádi。他也在德国国立斯图加特音乐学院 (Staatliche Hochschule für Musik und Darstellende Kunst) 取得最高文凭。在巴黎高等音乐学院 (Conservatoire national supérieur de musique et de danse Paris)，他师从 Prof. Marco Stroppa 等著名钢琴家。他是少数拥有德国作曲与钢琴两项专业最高文凭的音乐家。 他曾于德国南部三大城发表新作品七重奏，于台湾发表新作三重奏并举办个人钢琴独奏会。作品被德国西南德报 (Südwest Presse) 评论为: 传统与前卫的成功结合。2019 年，他被台湾艺术基金会选为 “作曲专题资料库的作曲家”。
+
+Xiaofeng Zhang, Taiwans neue Generation von innovativen Komponisten und Pianisten, lebt derzeit in Deutschland. Er erhielt das höchste Diplom der Staatlichen Hochschule für Musik Trossingen in Deutschland und studierte bei dem berühmten ungarischen Pianisten Prof. Ákos Hernádi. Er erhielt auch das höchste Diplom der Stuttgarter Hochschule für Musik und Darstellende Kunst. Am Conservatoire national supérieur de musique et de danse in Paris studierte er bei berühmten Pianisten wie Prof. Marco Stroppa. Er ist einer der wenigen Musiker mit dem höchsten deutschen Kompositions- und Klavierdiplom. Er hat ein neues Werkquartett in drei süddeutschen Großstädten veröffentlicht, ein neues Trio in Taiwan veröffentlicht und einen persönlichen Klavierabend gehalten. Die Arbeit wurde von der Südwest Presse kommentiert: Die Kombination aus Tradition und avantgardistischem Erfolg. In 2019 wurde er von der Taiwan Arts Foundation als "Komponist der speziellen Datenbank des Komponisten" ausgewählt.
+
  
 ## 合唱团介绍
  
