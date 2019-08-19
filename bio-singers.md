@@ -8,16 +8,18 @@ Die chinesische lyrische Koloratursopranistin Xinlei Yu erlangte in China ihre A
 
 叶遐，德中社区音乐剧场创始人及总监。上海音乐学院毕业，原福建省歌舞剧院独唱演员，曾多次获省内外歌手大赛金奖。原创歌曲《蓝蓝的江，绿绿的水》、《红》获得中央电视台星光新曲栏目优秀奖。 2018-2019，在法兰克福 Gallustheater 成功举办《千里之外》个人中国经典艺术歌曲音乐会及情景音乐会《西东相遇》。
 
-Ye Wei, Gründerin und Direktorin des deutsch-chinesischen Community Music Theatre. Die ehemalige Solodarstellerin des Fujian Song and Dance Theatre, Absolvent des Shanghai Conservatory of Music, hat mehrmals die Goldmedaillen bei Sängerwettbewerbe in China gewonnen. Ihre Originalsongs "Blue River, Green Water" und "Red" wurden mit dem Excellence Award der CCTV Starlight New Music ausgezeichnet. Im 2018-2019, sie hielt erfolgreich das "A Thousand Miles Outside" -Songkonzert für klassische chinesische Kunstlieder und das Szenenkonzert "Western Meet" im Gallustheater in Frankfurt.
+Ye Wei, Gründerin und Direktorin des deutsch-chinesischen Community Music Theatre. Die ehemalige Solodarstellerin des Fujian Song and Dance Theatre, Absolvent des Shanghai Conservatory of Music, hat mehrmals die Goldmedaillen bei Sängerwettbewerbe in China gewonnen. Ihre Originalsongs "Blue River, Green Water" und "Red" wurden mit dem Excellence Award der CCTV Starlight New Music ausgezeichnet. Im 2018-2019, sie hielt erfolgreich das "A Thousand Miles Outside" -Songkonzert für klassische chinesische Kunstlieder und das Szenenkonzert "West Meets East" im Gallustheater in Frankfurt.
 
  
 ### 3. 周泉
 
-周泉，女高音。2009年以专业满分的成绩考入德国弗莱堡国立音乐学院歌剧表演专业硕士，师从德国男中音歌唱家Markus Goritzki教授。2011年以专业满分的成绩毕业后直升德国弗莱堡国立音乐学院歌剧表演专业艺术家进修文凭。
-曾参加德国著名艺术歌曲指导 Rene Jacobs教授以及荷兰著名女高音Margreet Honig和美国著名女高音Cheryl Studer的大师班，获得了极高的赞誉。
-先后在德国弗莱堡国立歌剧院和斯图加特国立歌剧院以及斯图加特爱乐签约演出并参演多个国际歌剧节，获得一致好评!
+周泉，女高音。2009年以专业满分的成绩考入德国弗莱堡国立音乐学院歌剧表演专业硕士，师从德国男中音歌唱家 Markus Goritzki 教授。2011年以专业满分的成绩毕业后直升德国弗莱堡国立音乐学院歌剧表演专业艺术家进修文凭。
+曾参加德国著名艺术歌曲指导 Rene Jacobs 教授以及荷兰著名女高音 Margreet Honig 和美国著名女高音 Cheryl Studer 的大师班，获得了极高的赞誉。
+先后在德国弗莱堡国立歌剧院和斯图加特国立歌剧院以及斯图加特爱乐签约演出并参演多个国际歌剧节，获得一致好评。
 
-Quan Zhou, Sopran, kommt aus Wuhu  Stadt in China. Ab 2009 studiert sie an der Hochschule für Musik in Freiburg und schloss mit Master of Musik für Oper/Gesang ab. Ausschließend: Künstlerischer Weiterbildungsstudiengang "Advanced Studies" an der Hochschule für Musik in Freiburg bei Prof.  Markus Goritzki. Zudem nahm sie an mehreren Meisterkursen teil. Bereits als Studentin Einladungen ans Staatstheater Freiburg.Von 2012 bis 2016 Engagement an der Staatstheater Stuttgart.
+Quan Zhou, Sopran. Sie kommt aus Wuhu Stadt in China. Ab 2009 studiert sie an der Hochschule für Musik in Freiburg und schloss mit Master of Musik für Oper/Gesang ab. Danach nahm sie den Künstlerischer Weiterbildungsstudiengang "Advanced Studies" an der Hochschule für Musik in Freiburg beim Prof. Markus Goritzki. Zudem nahm sie an mehreren Meisterkursen teil. Bereits als Studentin war
+sie ans Staatstheater Freiburg eingeladet. Von 2012 bis 2016 war
+sie Schauspielerin an der Stuttgarter Staatsoper und den Stuttgarter Philharmonikern, hat an mehreren internationalen Opernfestivals teilgenommen und genoss hohes Ansehen.
 
 
 ### 4. 彭诗源
