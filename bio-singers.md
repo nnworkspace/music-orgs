@@ -40,6 +40,12 @@ Seit dem Sommersemester 2018 studiert er im Masterstudiengang Gesang bei Prof. M
 Er war bereits als Alidoro in La Cenerentola von Gioachino Rossini, als Simone in Gianni Schicchi von Giacomo Puccini zu erleben. Als Bass Solist trat er in Anton Bruckners Te Deum auf.
  
 ### 6. 张芮斌
+
+工学硕士。业余从事声乐学习、表演。从小参加合唱，并随团获得中小学生合唱比赛全国第二名。“水立方杯”海外华人中文歌曲大赛芬兰赛区冠军。寻求古典与流行唱法的结合，以增强表现力。
+
+
+Master in Wissenschaften. Amateur Sänger und Künstler. Er sang im Chor seit seiner Kindheit, gewannt den zweiter Platz im Chinesische Chorwettbewerb. Gewann den erster Platz im "Wasserwürfel" Chinesischer Gesanswettbewerb in Finnland. Er sucht eine Kombinaiton aus klassisch und populärem Gesang, für bessere Ausdruckskraft.
+
  
 ### 7.夏娃文格丝（Eva Wenniges） 
 
