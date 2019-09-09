@@ -2,7 +2,7 @@
 
 - [x] fix permalinks of the pages
 - [ ] create impressum and datenschutz page
-- [ ] clean up sidebar
+- [x] clean up sidebar
 - [ ] landing page (?)
 - [ ] gallery
 
