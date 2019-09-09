@@ -4,6 +4,7 @@
 - [ ] create impressum and datenschutz page
 - [ ] clean up sidebar
 - [ ] landing page (?)
+- [ ] gallery
 
 ## 2019.09.08
 
