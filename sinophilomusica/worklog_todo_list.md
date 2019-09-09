@@ -3,6 +3,7 @@
 - [x] fix permalinks of the pages
 - [ ] create impressum and datenschutz page
 - [ ] clean up sidebar
+- [ ] landing page (?)
 
 ## 2019.09.08
 
