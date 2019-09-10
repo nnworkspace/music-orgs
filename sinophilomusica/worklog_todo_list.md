@@ -1,10 +1,14 @@
+## 2019.09.10
+
+- [x] create impressum and datenschutz page
+- [ ] landing page (?)
+- [ ] gallery
+
 ## 2019.09.09
 
 - [x] fix permalinks of the pages
-- [ ] create impressum and datenschutz page
 - [x] clean up sidebar
-- [ ] landing page (?)
-- [ ] gallery
+
 
 ## 2019.09.08
 
